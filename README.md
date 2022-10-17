@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍🎓 I am a French Student in Cybersecurity (Master degree)<br>✨ I like dev + cyber<br>
+🧑‍🎓 I am a French Student in Cybersecurity (Master degree)<br>
 
 
 ## 🌐 Socials:
